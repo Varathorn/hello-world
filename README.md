@@ -1,2 +1,3 @@
 # hello-world
 In the beginning......
+Just a math nerd trying to make sense of it all, and occupy my quarantine time. Idle hands are the minds enemy
